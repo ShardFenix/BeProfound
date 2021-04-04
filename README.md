@@ -14,10 +14,15 @@ Whenever your opponent presents facts that disprove your claims, never change yo
 If your opponent asks you a question, chances are he's using the socratic method to get you to admit how idiotic your own argument is. This is something only clever people do, so don't fall for it! Refuse to answer anyone else's questions. Admitting you're wrong is scary! It feels much better to just believe whatever stupid shit pops into your mind or is fed to you by your retarded friends on social media. As everybody knows, feelings are more important than reality. If they weren't, religion wouldn't exist. Religion exists, therefore facts don't matter.
 
 ### Quote Bad Sources, Ad Populum
-A great way to show off your mental acuity (that means sharpness) is to quote nonauthoratative sources and claim that it's meaningful. Common examples are:
+A great way to show off your mental acuity (that means sharpness) is to quote nonauthoratative sources and pretend that it's not anally-derived nonsensical garbage. Common examples are:
 ```
 "I heard on Fox News that..."
 "I saw an article on Medium saying..."
 "<insert famous social media retard here> said..."
 ```
+The only part of an article you need to read is the title. They're definitely not clickbait intentionally designed for the outlet to make money from ads to maintain their business. Reading about details and specifics is unnecessary. Ain't nobody got time for that.
+
 As long as you list a source, no matter how worthless it is, other retards will think you've done research. As everyone knows, doing research makes you right, because everything on the internet is true. Also, if someone is really popular, that means they must be a perfect person who's always right. You know, like Hitler.
+
+### Dating
+If you are a retard seeking love on a dating app, be sure to put information on your bio that applies to everyone, like "I love to laugh" or "I like food". This lets other retards know that you have a pulse. You should also put instagram filters on all of your profile pics. You look more attractive as a dog, and it shows other retards that you know how to press random buttons on apps designed to sell your information to other companies. Also, please do me a favor and say you love Jesus so I can swipe left as efficiently as possible.
